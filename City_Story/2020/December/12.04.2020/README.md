@@ -7,6 +7,6 @@ I didn't play City Story today. I took a break from it, as I didn't have the tim
 
 Due to a discovery on Saturday, October 24th 2020 about how much time all games together take up, and how little time it leaves me, I had to make a schedule change for gaming, splitting all 25 games I play across a 7 day period, instead of all in 1 day.
 
-I won't be playing this game again until the new time slot, which is Thursday. I will be playing again on Thursday, December 3rd 2020.
+I won't be playing this game again until the new time slot, which is Thursday. I will be playing again on Thursday, December 10th 2020.
 
 ***
